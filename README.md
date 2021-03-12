@@ -1,1 +1,0 @@
-# videoshop-terms.github.io
